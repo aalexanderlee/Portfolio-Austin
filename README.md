@@ -6,7 +6,8 @@ Here's a cool animation for showcasing the contents:
 
 Feel free to connect from this page for future collaborations! Thanks for creeping! :)
 
-- Austin
+Austin
+
 
 Note worthy:
 This awesome styling was brought to you by the amazing David Miller:
